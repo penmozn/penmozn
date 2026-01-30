@@ -6,5 +6,7 @@ I'm super cool brah, trust me
 feel free to interact ! Idm cuddling, rp or ships!
     <br>
   only dni if you're 14 or below tho, pls
+  <br>
+  <br>
 <br>
 check out my strawpage nd prns page!!
