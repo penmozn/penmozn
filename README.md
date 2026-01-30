@@ -7,4 +7,4 @@ feel free to interact ! Idm cuddling, rp or ships!
     <br>
   only dni if you're 14 or below tho, pls
 <br>
-$${\color{blue}check out my strawpage nd prns page!!}$$
+check out my strawpage nd prns page!!
