@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://github.com/penmozn/penmozn/blob/22351cd44ca6dc5b10ec4e18f53bc021070b2d8c/Untitled6_20260130033107.png" width="450">
+<img src="https://github.com/penmozn/penmozn/blob/cfb33f5ff90ba37ce8b9f6587bd36f7d2cdc4cc8/hazbin-hotel-hazbin-ezgif.com-video-to-gif-converter.gif" width="450">
 <br>
 I'm super cool brah, trust me
   <br>
