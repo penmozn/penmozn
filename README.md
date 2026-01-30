@@ -3,7 +3,7 @@
 <br>
 I'm super cool brah, trust me
   <br>
-feel free to interact ! Idm cuddling, rp or ships!
+feel free to interact ! Idm any ship, so feel free to cuddle as any1!
     <br>
   dni if you're 14 or below tho, pls
   <br>
