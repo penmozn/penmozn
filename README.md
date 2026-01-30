@@ -3,6 +3,8 @@
 <br>
 I'm super cool brah, trust me
   <br>
-feel free to interact ! I'm lonely and bored /j
+feel free to interact ! Idm cuddling, rp or ships!
+    <br>
+  only dni if you're 14 or below tho, pls
 <br>
-[STRAWPAGE](https://moznek.straw.page/) $${\color{blue}Blue}$$
+$${\color{blue}check out my strawpage nd prns page!!}$$
