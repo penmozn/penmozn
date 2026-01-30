@@ -1,7 +1,8 @@
 <p align="center">
 <br>
-*ALWAYS KNEW THE GUY THEY'RE PRAYING TO WAS GONNA BE ME ! ! !*
+ALWAYS KNEW THE GUY THEY'RE PRAYING TO WAS GONNA BE ME ! ! !
 <br>
+  <br>
 <img src="https://github.com/penmozn/penmozn/blob/cfb33f5ff90ba37ce8b9f6587bd36f7d2cdc4cc8/hazbin-hotel-hazbin-ezgif.com-video-to-gif-converter.gif" width="450">
 <br>
 I'm super cool brah, trust me
