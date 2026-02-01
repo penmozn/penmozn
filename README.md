@@ -14,3 +14,7 @@ Idm pretty much anything, feel free to interact !
   <br>
 <br>
 check out my strawpage nd prns page!!
+  <br>
+  <img src="https://github.com/penmozn/penmozn/blob/756a30372f6c3e1603f1f88ee60a712f2a08fd3f/AHjAAx9.png" width="200">
+<br>
+screenie with @bettypet ! :3
