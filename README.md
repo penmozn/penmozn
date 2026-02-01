@@ -11,9 +11,9 @@ Idm pretty much anything, feel free to interact !
     <br>
   dni if you're 14 or below tho, pls
   <br>
-  <br>
 <br>
 check out my strawpage nd prns page!!
+    <br>
   <br>
   <img src="https://github.com/penmozn/penmozn/blob/756a30372f6c3e1603f1f88ee60a712f2a08fd3f/AHjAAx9.png" width="200">
 <br>
