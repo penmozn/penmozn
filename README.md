@@ -7,4 +7,10 @@
   <a href=https://moznek.straw.page/">STRAWPAGE</a>
   $\color{#ff003c}{ᯓ}$
   <a href=https://en.pronouns.page/@penmozn">PRNS PAGE</a>
+  <br>
+   <br>
+   <br>
+  feel free to int and c=h!
+ <br>
+  dni if ur 14 or below tho, pls,,,
 </p>
