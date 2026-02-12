@@ -18,7 +18,7 @@
   <br>
    <img src="https://github.com/penmozn/penmozn/blob/fb70ff398f6a3acec039c289d04e0ec2195c21b9/ce265fe1.gif">
   <br>
-  feel free to int and c=h!
+  feel free to int and c+h!
  <br>
   dni if ur 14 or below tho, pls,,,
 </p>
