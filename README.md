@@ -4,7 +4,7 @@
 <p align="center">
   <a href=https://penmozn.atabook.org/">ATABOOK</a>
   $\color{#ff003c}{ᯓ}$
-  <a href=https://moznek.straw.page/">STRAWPAGE</a>
+ <a href=https://moznek.straw.page/">STRAWPAGE</a>
   $\color{#ff003c}{ᯓ}$
   <a href=https://en.pronouns.page/@penmozn">PRNS PAGE</a>
   <br>
