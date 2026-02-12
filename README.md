@@ -1,16 +1,10 @@
-## Hi there 👋
-
-<!--
-**penmozn/penmozn** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center">
+  <img src="https://github.com/penmozn/penmozn/blob/8c1bd3a2750aca5184b67eb46cffcdf6bd9187a6/YouTooz_artwork_icon_of_Weighted_Vox_Plush.webp" width="300">
+</p>
+<p align="center">
+  <a href=https://penmozn.atabook.org/">ATABOOK</a>
+  $\color{#ff003c}{ᯓ}$
+  <a href=https://moznek.straw.page/">STRAWPAGE</a>
+  $\color{#ff003c}{ᯓ}$
+  <a href=https://en.pronouns.page/@penmozn">PRNS PAGE</a>
+</p>
