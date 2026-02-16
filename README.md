@@ -21,4 +21,6 @@
   feel free to int and c+h!
  <br>
   dni if ur 14 or below tho, pls,,,
+  <br>
+  <a href=https://rentry.co/mozns_kinlist>kin list hehe</a>
 </p>
