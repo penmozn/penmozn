@@ -21,4 +21,7 @@
   feel free to int and c+h!
  <br>
   dni if ur 14 or below tho, pls,,,
+  <br>
+  <br>
+   <img src="https://github.com/penmozn/penmozn/blob/362b17205c9bfb3cec637576c9e6c124b2553f57/blinkiesCafe-Ao.gif" width="150">
 </p>
