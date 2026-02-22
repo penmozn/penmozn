@@ -20,7 +20,9 @@
   <br>
   feel free to int and c+h!
   <br>
-  IDM cuddles from anyvun, but pls don't hide me purposely if you're not my friend awkward face!!!
+  IDM cuddles from anyvun, even if AFK/offtab!!
+  <br>
+  pls don't hide me purposely if you're not my friend awkward face!!!
   <br>
   I'm not keen on roleplaying, so if you start doing it w me, best believe I'll either take it as a joke or not reply
   <br>
