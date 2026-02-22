@@ -20,13 +20,19 @@
   <br>
   feel free to int and c+h!
   <br>
+  .
+  <br>
+  .
+   <br>
+  .
+  <br>
   IDM cuddles from anyvun, even if AFK/offtab!!
   <br>
-  pls don't hide me purposely if you're not my friend awkward face!!!
+    <br>
+  pls don't cover me purposely if you're not my friend awkward face!!!
   <br>
-  I'm not keen on roleplaying, so if you start doing it w me, best believe I'll either take it as a joke or not reply
-  <br>
-  I'm fine w pretty much any ship :p
+    <br>
+  I'm not keen on roleplaying sorry guys
   <br>
  <br>
   dni if ur 14 or below tho, pls,,,
