@@ -7,6 +7,8 @@
  <a href=https://moznek.straw.page/>STRAWPAGE</a>
   $\color{#ff003c}{ᯓ}$
   <a href=https://en.pronouns.page/@penmozn>PRNS PAGE</a>
+  $\color{#ff003c}{ᯓ}$
+  <a href=https://www.tumblr.com/penmozn>TUMBLR</a>
   <br>
    <br>
   .
@@ -18,24 +20,10 @@
   <br>
    <img src="https://github.com/penmozn/penmozn/blob/fb70ff398f6a3acec039c289d04e0ec2195c21b9/ce265fe1.gif">
   <br>
-  feel free to int and c+h!
+  <a href=https://rentry.co/ponytown_boundaries>PT BOUNDARIES</a>
   <br>
-  .
   <br>
-  .
-   <br>
-  .
-  <br>
-  IDM cuddles from anyvun, even if AFK/offtab!!
-  <br>
-    <br>
-  pls don't cover me purposely if you're not my friend awkward face!!!
-  <br>
-    <br>
-  I'm not keen on roleplaying sorry guys
-  <br>
- <br>
-  dni if ur 14 or below tho, pls,,,
+  dni if ur 14 or below, pls,,,
   <br>
   <br>
    <img src="https://github.com/penmozn/penmozn/blob/362b17205c9bfb3cec637576c9e6c124b2553f57/blinkiesCafe-Ao.gif" width="200">
