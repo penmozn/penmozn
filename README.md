@@ -20,6 +20,8 @@
   <br>
    <img src="https://github.com/penmozn/penmozn/blob/fb70ff398f6a3acec039c289d04e0ec2195c21b9/ce265fe1.gif">
   <br>
+   <a href=https://moznsptscreenshotsyey.straw.page/>PONYTOWN SCREENIES</a>
+  <br>
   <a href=https://rentry.co/ponytown_boundaries>PT BOUNDARIES</a>
   <br>
   <br>
