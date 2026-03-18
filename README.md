@@ -22,6 +22,8 @@
   <br>
    <a href=https://moznsptscreenshotsyey.straw.page/>PONYTOWN SCREENIES</a>
   <br>
+  .
+  <br>
   <a href=https://rentry.co/ponytown_boundaries>PT BOUNDARIES</a>
   <br>
   <br>
