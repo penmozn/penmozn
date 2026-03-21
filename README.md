@@ -1,4 +1,8 @@
 <p align="center">
+  <img src="https://github.com/penmozn/penmozn/blob/e394313b93a306fdffb5e218f6b3e1b3b6130bce/blinkiesCafe-ll.gif" width="200">
+  <br>
+  <br>
+  <br>
   <img src="https://github.com/penmozn/penmozn/blob/8c1bd3a2750aca5184b67eb46cffcdf6bd9187a6/YouTooz_artwork_icon_of_Weighted_Vox_Plush.webp" width="300">
 </p>
 <p align="center"> 
