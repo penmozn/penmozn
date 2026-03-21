@@ -24,8 +24,6 @@
   <br>
   .
   <br>
-  <a href=https://rentry.co/ponytown_boundaries>PT BOUNDARIES</a>
-  <br>
   <br>
   dni if ur 14 or below, pls,,,
   <br>
