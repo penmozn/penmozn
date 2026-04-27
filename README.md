@@ -3,7 +3,7 @@
   <br>
   <br>
   <br>
-  <img src="https://github.com/penmozn/penmozn/blob/8c1bd3a2750aca5184b67eb46cffcdf6bd9187a6/YouTooz_artwork_icon_of_Weighted_Vox_Plush.webp" width="300">
+  <img src="https://github.com/penmozn/penmozn/blob/62289379c74ac52930b1b34d01880e6b9babcedd/Untitled1263_20260428010344.png" width="300">
 </p>
 <p align="center"> 
   <a href=https://penmozn.atabook.org/>ATABOOK</a>
