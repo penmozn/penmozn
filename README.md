@@ -8,7 +8,7 @@
 <p align="center"> 
   <a href=https://penmozn.atabook.org/>ATABOOK</a>
   $\color{#ff003c}{ᯓ}$
-  <a href=https://en.pronouns.page/@penmozn>PRNS PAGE</a>
+  <a href=https://rentry.co/penmozn>REMTRY</a>
   $\color{#ff003c}{ᯓ}$
   <a href=https://www.tumblr.com/penmozn>TUMBLR</a>
   <br>
