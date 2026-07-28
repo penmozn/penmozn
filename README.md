@@ -6,10 +6,6 @@
   <img src="https://github.com/penmozn/penmozn/blob/62289379c74ac52930b1b34d01880e6b9babcedd/Untitled1263_20260428010344.png" width="300">
 </p>
 <p align="center"> 
-  <a href=https://penmozn.atabook.org/>ATABOOK</a>
-  $\color{#ff003c}{ᯓ}$
-  <a href=https://rentry.co/penmozn>RENTRY</a>
-  $\color{#ff003c}{ᯓ}$
   <a href=https://www.tumblr.com/penmozn>TUMBLR</a>
   <br>
    <br>
